@@ -39,7 +39,7 @@ N'hésitez pas à les contacter pour les remercier, leur donner des retours sur 
 - [Lionel BENAZECH](https://www.youtube.com/@caribou81) - Game Designer
 - [Raphaël MERCIÉ](https://www.linkedin.com/in/rapha%C3%ABl-merci%C3%A9-61362a22a/) - Développeur
 - [KaitoMomota](https://www.github.com/KaitoMomota) - Développeur
-- [Alexandre FLION](https://www.linkedin.com/in/alexandre-flion/) - Développeur
+- [Emily FLION](https://www.linkedin.com/in/emily-flion/) - Développeuse
 - [Charles RETOUT](https://www.youtube.com/watch?v=dQw4w9WgXcQ) - Sound Designer
 - [Timéo RAGAZZINI](https://www.instagram.com/titi.raga/) - Graphiste
 - [Matis MOUNIC](https://lesbrascasses.net/) - Fondateur de [Les Bras Cassés](https://lesbrascasses.net/)
